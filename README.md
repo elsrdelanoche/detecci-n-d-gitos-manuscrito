@@ -1,0 +1,1 @@
+# detecci-n-d-gitos-manuscrito
